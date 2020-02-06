@@ -21,7 +21,7 @@
 
 5) Place sliced cabbage in a large bowl.
 6) Add salt, sugar, and 1/4 cup vinegar, then toss to coat.
-7) Let sit for at 10 minutes (max 15, min 5 minutes).
+7) Let sit for at least 10 minutes (max 15 minutes).
 8) Completely drain the pickled cabbage. Do not compress the cabbage -- gently drain.
 
 ## Add the dressing
